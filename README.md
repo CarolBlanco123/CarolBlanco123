@@ -1,0 +1,1 @@
+- oi meu nome e Carol,tenho 17 anos,moro em sertazinho,estudo na escola Furlan estou no primero ano do ensino medio.
